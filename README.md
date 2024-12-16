@@ -1,1 +1,5 @@
-# Report-Morteza-yftt33.XxX-yftt17.ccc-yftt18-report-filtering-hackering-YFTT16K-XxX
+
+این حساب به دلیل تخلفات محرز تعلیق گردد
+https://rubika.ir/
+@SupportBot
+@netreport
